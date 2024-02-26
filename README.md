@@ -1,1 +1,1 @@
-dmsanalytics.github.io
+sejal.github.io
